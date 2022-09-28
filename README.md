@@ -58,3 +58,7 @@ When assigned a task do you best no matter if you enjoy the task for not.  This 
 
 ***Blockchain Revolution: How the Technology Behind Bitcoin Is Changing Money, Business, and the World*** by Alex Tapscott and Don Tapscott
 
+
+
+### [About Me](https://nicholasdsouza17.github.io/)
+
